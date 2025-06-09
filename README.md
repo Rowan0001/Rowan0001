@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Rowan0001
 - 👀 I’m interested in computers
 - 🌱 I’m currently learning java
-- 📫 You can add me on discord "rowan5016"
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like programming 🤯🤯🤯
